@@ -1,6 +1,6 @@
-# 👋 Hi, I’m Isaac Talb!
+# 👋 Hola, I'm Isaac from Burma 🇲🇲 
 
-#### I'm a backend developer with a focus on PHP, Laravel, and VPS server management. My expertise spans database management, open-source tools, and secure server setups on AlmaLinux and Ubuntu. I build interactive web applications that feature real-time engagement and scalable backend solutions. With a passion for continuous learning, I balance technical skills with a global perspective through both academic and cultural projects. Reliable and collaborative, I bring both technical depth and creative insight to every project.
+#### Please reach out to me via below Social Links!
 
 
 ## 🌐 Socials:
