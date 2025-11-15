@@ -1,4 +1,4 @@
-# 👋 Hola, I'm Isaac. 🇲🇲 | 🇰🇭 | 🇹🇭
+# 👋 Hola, I'm Isaac.
 
 #### Please reach out to me via below Social Links!
 
