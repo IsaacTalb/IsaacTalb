@@ -1,4 +1,4 @@
-# 👋 Hola, I'm Isaac.
+# hi!
 
 #### Please reach out to me via below Social Links!
 
